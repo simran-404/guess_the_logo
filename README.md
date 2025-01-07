@@ -46,3 +46,4 @@ Stage 3: Emoji Logo Challenge
 	Email: simmis1704@gmail.com
 	GitHub: simran-404
  
+Thank you for playing! 🎉
